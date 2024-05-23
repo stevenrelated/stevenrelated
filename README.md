@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @stevenrelated
+- 👀 I’m interested in AI, manufacturing and ecom
+- 🌱 I’m currently learning new shit everyday
+- 💞️ I’m looking to collaborate on AI software for small business
+- 📫 How to reach me: hi@stevenrelated.com
